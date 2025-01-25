@@ -18,7 +18,7 @@ Bienvenidos a **Juegos, Anime, Series y Películas Gratis**, una página donde p
 
 Si deseas unirte a nuestra comunidad, puedes hacerlo a través de nuestro servidor de **Discord**. ¡Te esperamos!
 
-[Únete a nuestro Discord](https://discord.gg/TuEnlaceDeDiscord)
+[Únete a nuestro Discord](https://discord.gg/T4K4zmtj75)
 
 ## Contribuir
 
